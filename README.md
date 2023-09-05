@@ -1,3 +1,6 @@
-Hello I'm xLuigiGamerx
-I Have a discord account:
-𝔁𝓛𝓾𝓲𝓰𝓲𝓖𝓪𝓶𝓮𝓻𝔁#2468
+You've reached xLuigiGamerx's github.
+Discord:
+*Account: xluigigamerx
+*Server: https://discord.com/invite/hXd9fGqG2P
+Youtube:
+https://youtube.com/@xLuigiGamerx
